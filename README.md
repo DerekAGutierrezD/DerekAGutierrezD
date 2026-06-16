@@ -41,7 +41,10 @@
 
 ## 📫 Let's Connect!
 
-- **LinkedIn:** [linkedin.com/in/derek-gutierrez-ba812a255](https://www.linkedin.com/in/derek-gutierrez-ba812a255)
+- **Email:** derekgutierrez840@gmail.com
+- **Celphone:** +57 3506811296
+- **LinkedIn:** [Link](https://www.linkedin.com/in/derek-gutierrez-ba812a255)
+- **Portfolio:** Coming Soon!!
 
 <!--
 **DerekAGutierrezD/DerekAGutierrezD** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
